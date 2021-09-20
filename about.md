@@ -12,4 +12,4 @@ A place to all the info on choudhary's banglore journey.
 
 ### Contact me
 
-[email@domain.com](mailto:originaltaste05@gmail.com)
+[choudharyupdate@banglore.com](mailto:originaltaste05@gmail.com)
